@@ -6,3 +6,4 @@
 
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos.
 
+![.](https://media.tenor.com/wBQ7VmtENuAAAAAM/ronaldo-angry.gif)
